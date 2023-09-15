@@ -1,4 +1,4 @@
-# ***Oh, irasshaiamase***
+# ***Oh, irasshaimase***
 ![1694796123908](https://github.com/tolskiomitz/tolskiomitz/assets/110472328/e08a5fd5-8224-4508-a737-6761cbd52af1)
 
 Hello, i'm Tolu omitz,  and i just started using github. 😃
